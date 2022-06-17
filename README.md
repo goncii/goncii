@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @goncii
+- 👋 Hi, I’m Gonçalo Lopes
 - 👀 I’m interested in gaming, volleyball and coding
 - 🌱 I’m currently learning how to code
 - 📫 Discord: Goncii#2125
